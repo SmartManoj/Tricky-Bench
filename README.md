@@ -34,3 +34,8 @@ The classic riddle "Which weighs more: a pound of feathers or a pound of bricks?
 
 **Answer:** 20 pounds of bricks weigh more.
 
+
+
+---
+
+Credits: https://x.com/lefthanddraft/status/1932845359480656146
